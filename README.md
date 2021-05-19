@@ -1,2 +1,2 @@
 # XoreAPI
-Exploit API Coming Soon! Prob about 2 months lol
+Exploit API Coming Soon! Prob about 999999999999 centuries lol
